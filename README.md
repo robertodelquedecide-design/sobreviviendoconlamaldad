@@ -1,3 +1,2 @@
-# sobreviviendoconlamaldad
-Vivir con la maleta del vacío moral
-Quién escucha a una persona que tienes enfermedades no vistas.
+Sobreviviendo con la Maldad
+Era niña cuando el mundo se volvió un lugar prohibido. Mi padre me violaba, me torturaba, me lavaba el cerebro para que creyera que podía “leerme”. Para sobrevivir, mi mente se fracturó en 2500 personalidades distintas: niños, mujeres, soldados, artistas. Cada una tenía un recuerdo agudo de lo que pasó y una misión: contener el abuso. En la corte, no fui yo, fue Symphony, Muscles o Linda quien habló por mí. No era solo sobre traumas —era sobre supervivencia. Mi trastorno disociativo de identidad (DID) fue mi arma contra la oscuridad. Hoy vivo con mis alters: en el trabajo, en las joyas que hago, en canciones que no son para olvidar. No me siento bien porque lo hice, sino porque lo viví. Lo peor no fue el abuso; fue creer que nadie lo vería. Ahora sé que mi historia es válida. Que la maldad no define a una persona, solo muestra cuánto luchó para salir. Yo sobreviví con la maldad porque aprendí que incluso en los peores momentos, el alma puede resistir.
